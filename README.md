@@ -4,3 +4,5 @@ WIP -- rethemeing page :P
 idk man heres some info in the mean time i guess
 
 seth  18  he him        pro-dgaf wht other people do    pro-freak
+
+I am your problematic oomf
