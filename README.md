@@ -1,3 +1,6 @@
 WIP -- rethemeing page :P
 <p align="center">
   <img src="https://i.postimg.cc/FHSHcMKD/Untitled2124-20251117174109.png<img width="1280" height="736" alt="image" src="https://github.com/user-attachments/assets/8a66e1d3-85c0-4724-a61c-dbe2fe1a2d9d" />
+idk man heres some info in the mean time i guess
+
+seth  18  he him
