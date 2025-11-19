@@ -1,6 +1,7 @@
 WIP -- rethemeing page :P
 <p align="center">
-  <img src="https://i.postimg.cc/FHSHcMKD/Untitled2124-20251117174109.png<img width="1280" height="736" alt="image" src="https://github.com/user-attachments/assets/8a66e1d3-85c0-4724-a61c-dbe2fe1a2d9d" />
+  <img src="https://i.postimg.cc/FFL0mmff/Untitled2137-20251118210956.png<img width="434" height="574" alt="image" src="https://github.com/user-attachments/assets/f6c01963-9387-44d8-854d-5e2c8cc31f64" />
+<img width="1280" height="736" alt="image" src="https://github.com/user-attachments/assets/8a66e1d3-85c0-4724-a61c-dbe2fe1a2d9d" />
   
 idk man heres some info in the mean time i guess
 
